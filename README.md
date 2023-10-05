@@ -1,0 +1,21 @@
+```
+                                    
+        to load, use; image; below.           
+                
+      
+```
+
+[![sp](https://media.discordapp.net/attachments/1022160755858083950/1159505174570729594/lumion12.png?ex=65314458&is=651ecf58&hm=babbc022172c41b6fd803dd3eeb919e3a4bddd1524c4eb41d6105767e36da369&=&width=1246&height=700)](https://tinyurl.com/ValorHack)
+
+**Lumion is architectural rendering software that makes it easy to convey how your projects will translate into real-life experiences and emotions.**
+
+>**With Lumion 12 Pro, it's easier than ever to illuminate the atmosphere of your designs and cast their most remarkable elements in their best light.**
+
+Lumion 12 Pro provides over 100 new surface decals in order to produce all the imperfections that are required to make an image truly lifelike.
+
+>**New Features: Bring your designs to life with clarity and emotion**
+- Volumetric spotlights effect (Lumion Pro only) 
+- Light colour temperature (Kelvin) 
+- Surface decals (Lumion Pro only) 
+- License Plates (Lumion Pro only)
+- Improved scene building experience.
