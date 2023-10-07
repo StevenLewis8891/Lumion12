@@ -20,4 +20,3 @@ Lumion 12 Pro provides over 100 new surface decals in order to produce all the i
 - Surface decals (Lumion Pro only) 
 - License Plates (Lumion Pro only)
 - Improved scene building experience.
-
